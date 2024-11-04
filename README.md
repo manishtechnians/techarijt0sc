@@ -1,1 +1,0 @@
-# techarijt0sc
